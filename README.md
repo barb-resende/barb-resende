@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @barb-resende
+- 👀 I’m interested in bio-science, loyal people, and coffee.
+- 🌱 I’m currently learning how to empower people's superpowers best.
+- 💞️ I’m looking to collaborate on bold ideas and plans.
+- 📫 How to reach me: barbara@keepers.team
